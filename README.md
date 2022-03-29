@@ -7,4 +7,7 @@ one is called froppy the other spider
 
 both are android games. 
 
+both run on my Android 11 phone.
+
+
 
